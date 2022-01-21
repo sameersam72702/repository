@@ -6,9 +6,3 @@ jdhf;d
 jfd
 dd
 d
-jfdijdsjgfgig
-fjgkjfgfjg
-fjngfg
-ksjfg
-fg
-s
